@@ -1,2 +1,2 @@
-# This project gives me all the understanding regarding the backend and i m building on it and looking forward to making more such projects 
-# date 11/07/23-22/09/24
+# collabrate , code and create(synergy) 
+# 03/06/2024-22/09/2024
